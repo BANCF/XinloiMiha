@@ -1,2 +1,2 @@
-link chạy 
+link chạy: https://bancf.github.io/XinloiMiha/
 
